@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @steffenlongva
-- 👀 I’m interested in gaming 🎮, tech 💻 and synthesizers 🎹⌨️
+- 👀 I’m interested in gaming 🎮, tech 💻, music 🎶 and synthesizers 🎹⌨️
 - 🌱 I’m currently learning stuff
 - 💞️ I’m looking to collaborate on music
 - 📫 How to reach me @stefftastiq
